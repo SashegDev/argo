@@ -1,2 +1,3 @@
-# eaglermypack
-my texture pack (lite version) on eaglercraft
+# just fcking amogus
+
+why you're watching this?
